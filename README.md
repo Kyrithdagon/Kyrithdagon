@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kyrithdagon (not my real name)
 - 🫡 Student 
-- ⚡ Majoring in: Electrical Engineering
+- ⚡ Major: Electrical Engineering
 - 🎨 Interests: Art, Minecraft, Pokemon, Kaijus, Dragons, Animals, Badminton, and listening to Music
 
 <!---
